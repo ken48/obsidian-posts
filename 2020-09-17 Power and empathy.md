@@ -1,4 +1,4 @@
-# 2020-09-17 Ресурс власти и эмпатия
+# Ресурс власти и эмпатия
 
 https://incrussia.ru/news/rabota-gendirom-vredit-mozgu
 
